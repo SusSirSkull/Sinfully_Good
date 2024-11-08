@@ -1,14 +1,9 @@
-- 👋 Hi, I’m @SusSirSkull
-- 👀 I’m interested in gaming/youtube (just created channel)
+- 👋 Hi, I’m @Sinfully_Good
+- 👀 I’m interested in gaming/youtube (just created a channel)
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on roblox
-- you can find me on discord @Sus Sir Skull
-On  yt @Sus Sir Skull
+- you can find me on
+On discord @sinfully_good.
+On youtube @Sinfully_Good
 On twich @Skull36078
-On roblox@skull36078
-
-
-<!---
-SusSirSkull/SusSirSkull is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+On roblox @Lordskull36078
