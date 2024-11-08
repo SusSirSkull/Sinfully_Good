@@ -2,8 +2,4 @@
 - 👀 I’m interested in gaming/youtube (just created a channel)
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on roblox
-- you can find me on
-On discord @sinfully_good.
-On youtube @Sinfully_Good
-On twich @Skull36078
-On roblox @Lordskull36078
+- you can find me on discord @sinfully_good. on youtube @Sinfully_Good on twich @Skull36078, and on roblox @Lordskull36078
